@@ -1,4 +1,3 @@
-# idilkeskin428.github.io
 # My Mentor Idil ✨
 ### Geleceğin Bilgisayar Bilimcisi & Senin Yol Arkadaşın
 
