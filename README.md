@@ -5,7 +5,7 @@ Merhaba! Ben Idil. Akademik gelişimini uluslararası düzeye taşımak isteyen,
 
 ---
 
-## 🚀 Neler Yapıyoruz?
+## 🎯 Neler Yapıyoruz?
 * **Stratejik Yol Haritası:** Hangi adımları atmalıyız?
 * **Küresel Fırsatlar:** Uluslararası öğrenciler için sertifikalı kurslar ve programlar buluyoruz.
 * **Akademik Profil:** Uygun bütçeyle sağlam bir CV inşa etmeliyiz.
@@ -13,7 +13,7 @@ Merhaba! Ben Idil. Akademik gelişimini uluslararası düzeye taşımak isteyen,
 
 ---
 
-## 💡 Neden My Mentor Idil?
+## 🪄 Neden My Mentor Idil?
 Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. ABD'de katıldığım matematik ve siber güvenlik programlarından edindiğim tecrübeleri, girdiğim sınavları ve ve sınavlara nasıl/ne sıklıkla çalıştığımı bir öğrencinin dilinden ve bir arkadaş samimiyetiyle paylaşıyorum.
 
 [Bana Ulaşın!] | [Neler Yaptık?]
