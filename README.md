@@ -2,7 +2,7 @@
 # My Mentor Idil ✨
 ### Geleceğin Bilgisayar Bilimcisi & Senin Yol Arkadaşın
 
-Merhaba! Ben Idil. Akademik gelişimini uluslararası düzeye taşımak isteyen, teknoloji tutkunu bir lise son sınıf öğrencisiyim. Yurtdışı üniversite başvuruları, burs arayışları ve CV oluşturma süreçlerindeki tecrübelerimi burada seninle paylaşıyorum.
+Merhaba! Ben Idil. Akademik gelişimini uluslararası düzeye taşımak isteyen, teknoloji tutkunu bir öğrenciyim. Yurtdışı üniversite başvuruları, burs arayışları ve CV oluşturma süreçlerindesana yardımcı olmaktan memnuniyet duyarım!
 
 ---
 
