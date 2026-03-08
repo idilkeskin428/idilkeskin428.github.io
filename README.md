@@ -16,4 +16,4 @@ Merhaba! Ben Idil. Akademik gelişimini uluslararası düzeye taşımak isteyen,
 ## 💡 Neden My Mentor Idil?
 Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. ABD'de katıldığım matematik ve siber güvenlik programlarından edindiğim tecrübeleri, girdiğim sınavları ve ve sınavlara nasıl/ne sıklıkla çalıştığımı bir öğrencinin dilinden ve bir arkadaş samimiyetiyle paylaşıyorum.
 
-[Bana Ulaşın] | [Rehberler]
+[Bana Ulaşın!] | [Neler Yaptık?]
