@@ -24,3 +24,8 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 * **E-posta:** `idilkeskin428@gmail.com` 
 * **GitHub:** [idilkeskin428](https://github.com/idilkeskin428)
 
+---
+
+| | 🏆 Desteklediklerim |
+| :--- | :--- |
+| **Merhaba!** Akademik gelişimini uluslararası düzeye taşımak isteyen öğrencilere mentorluk yapıyorum. Detaylı başarı hikayelerimize sağdaki listeden ulaşabilirsin. | 1. **[Ayça](ayca)** |
