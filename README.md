@@ -16,11 +16,11 @@ Merhaba! Ben Idil. Akademik gelişimini uluslararası düzeye taşımak isteyen,
 ## 🪄 Neden My Mentor Idil?
 Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. ABD'de katıldığım matematik ve siber güvenlik programlarından edindiğim tecrübeleri, girdiğim sınavları ve ve sınavlara nasıl/ne sıklıkla çalıştığımı bir öğrencinin dilinden ve bir arkadaş samimiyetiyle paylaşıyorum.
 
-[Bana Ulaşın!] | [Neler Yaptık?]
 ---
 
 ## 📩 Bana Ulaşın!
 
-* **Instagram:** [@idilkeskin_](https://instagram.com/idilkeskin_) 
+* **Instagram:** [@elmo_moly_](https://instagram.com/elmo_moly/_) 
 * **E-posta:** `idilkeskin428@gmail.com` 
 * **GitHub:** [idilkeskin428](https://github.com/idilkeskin428)
+
