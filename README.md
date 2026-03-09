@@ -34,4 +34,4 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 
 | | 🏆 Desteklediklerim |
 | :--- | :--- |
-| **Merhaba!** Akademik gelişimini uluslararası düzeye taşımak isteyen öğrencilere mentorluk yapıyorum. Detaylı başarı hikayelerimize sağdaki listeden ulaşabilirsin. | 1. **[Ayça](ayca)** |
+| | 1. **[Ayça](ayca)** |
