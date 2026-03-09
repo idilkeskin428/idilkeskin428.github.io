@@ -22,5 +22,5 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 ## 📩 Bana Ulaşın!
 
 * **Instagram:** [@idilkeskin_](https://instagram.com/idilkeskin_) 
-* **E-posta:** `idilkeskin428 [at] gmail.com` 
+* **E-posta:** `idilkeskin428@gmail.com` 
 * **GitHub:** [idilkeskin428](https://github.com/idilkeskin428)
