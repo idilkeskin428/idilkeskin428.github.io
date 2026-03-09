@@ -28,4 +28,4 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 
 | 🏆 Desteklediklerim |
 | :--- | :--- |
-| 1. **[Ayça](ayca)** |
+| 1. **[Ayça](Ayca)** |
