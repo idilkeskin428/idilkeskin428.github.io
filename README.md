@@ -21,11 +21,12 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 ## 📩 Bana Ulaşın!
 
 * **Instagram:** [@elmo_moly_](https://instagram.com/elmo_moly/_) 
-* **E-posta:** `idilkeskin428@gmail.com` 
+* **E-posta:** [idilkeskin428@gmail.com](idilkeskin428@gmail.com) 
 * **GitHub:** [idilkeskin428](https://github.com/idilkeskin428)
+* **Voluntify:** [Idil Keskin](https://volunify.app/v/idil-keskin)
 
 ---
 
 | 🏆 Desteklediklerim |
 | :--- | :--- |
-| 1. **[Ayça](Ayca)** |
+| 1. **[Ayça Elmas Karadağ](Ayca)** |
