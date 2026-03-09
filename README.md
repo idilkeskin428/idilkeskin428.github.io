@@ -29,4 +29,4 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 
 | 🏆 Desteklediklerim |
 | :--- | :--- |
-| 1. **[Ayça Elmas Karadağ](Ayca)** |
+| 1. **[Ayça Elmas Karadağ](Ayca_Elmas_Karadag)** |
