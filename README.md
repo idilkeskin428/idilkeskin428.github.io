@@ -24,6 +24,7 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 * **E-posta:** [idilkeskin428@gmail.com](idilkeskin428@gmail.com) 
 * **GitHub:** [idilkeskin428](https://github.com/idilkeskin428)
 * **Voluntify:** [Idil Keskin](https://volunify.app/v/idil-keskin)
+* **Quora:** [Idil Keskin](https://www.quora.com/profile/Idil-Keskin)
 
 ---
 
