@@ -31,4 +31,4 @@ Sana sadece bilgi vermiyorum, bizzat deneyimlediğim süreçleri anlatıyorum. A
 | 🏆 Desteklediklerim |
 | :--- | :--- |
 | 1. **[Ayça Elmas Karadağ](Ayca_Elmas_Karadag)** |
-| 2. **[Sinem ..](Sinem_Soyad)** |
+| 2. **[Sinem Soydaş](Sinem_Soydas)** |
