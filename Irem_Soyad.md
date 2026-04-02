@@ -1,5 +1,5 @@
 # İrem ile Yolculuğumuz 🏅
 
-İrem ile 1 Nisan 2026 tarihinde çalışmaya başladık. Kendisi uzay ve fizik ile ilgileniyor. Bundan dolayı o yönde ilerliyoruz.
+İrem ile 1 Nisan 2026 tarihinde çalışmaya başladık. Havacılığa ve uzaya olan merakından dolayı o yönde adımlar atıyoruz.
 
 Kendisiyle çalışmalarımıza devam ediyoruz.
